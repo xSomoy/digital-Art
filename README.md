@@ -8,6 +8,7 @@
 
 <b>DO I CARE?</b>
 
+![khoma](https://raw.githubusercontent.com/xSomoy/wallpapers/master/bioHazzardSkullMask/bioHazzardSkullMask_v1.jpg)
 
 
 ---
